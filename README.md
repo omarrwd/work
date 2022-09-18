@@ -50,11 +50,3 @@
 
 
 
-qwq!
-
-
-
-
-w
-sssdsdasdsdsassadasdsa
-
